@@ -30,8 +30,13 @@ Project Goals:
 - Provide a surprise element that adds to the celebratory atmosphere
 - Ensure a smooth and responsive user experience across various devices
 
+  ANUSHKA NIM
+  Y24
+  <@anushkan17>
+  
 
-                                 ~ANUSHKA NIM
+
+                                 
                                     
   
   
